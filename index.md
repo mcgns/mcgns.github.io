@@ -6,7 +6,15 @@ If you are a Middleton Cheney resident who is elderly, unwell, lonely, disabled,
 
 Here at the Middleton Cheney Good Neighbour Scheme the wellbeing of our volunteers and clients is our top priority. We are taking this unprecedented situation very seriously and giving updated advice to our volunteers, based on government and Public Health England advice, but also taking particular account of our clients' vulnerability.
 
-Because of the need for social distancing we cannot currently help with tasks like gardening and help around the home.
+Because of the need for social distancing we cannot currently help with tasks like gardening and help around the home. We can still offer:
+* Shopping 
+* Urgent supplies
+* Dog walking 
+* Pets to the Vets
+* Friendly phone calls
+* Liaising with relatives 
+* Prescription drop off
+* Prescription collection
 
 ## About the scheme
 
@@ -22,15 +30,15 @@ to use the telephone in your own home to receive requests from clients and find 
 
 ### Shopping
 
-shop, pick up prescriptions or relieve carers for short periods.
+shop, pick up prescriptions, deliver urgent supplies.
 
 ### Practical Help
 
-heavier jobs around the home - moving furniture, minor repairs, decorating and gardening.
+dog walking, taking pets to the vets for urgent appointments.
 
 ### Befriending
 
-visit a lonely person on a regular basis.
+contact a lonely person on a regular basis.
 
 ## Become a volunteer
 
