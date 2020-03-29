@@ -40,4 +40,4 @@ Alternatively, you can join our [Facebook Group](https://www.facebook.com/groups
 
 ## GDPR - Data Protection Privacy Notice
 
-We take our data privacy responsibilities very seriously at Middleton Cheney Good Neighbour Scheme, and want you to understand and feel confident about how we protect and handle your personal data. If you would like to find out more you can read our Privacy Notice, or contact our Data Controller by email: dpo@mcgns.org.uk.
+We take our data privacy responsibilities very seriously at Middleton Cheney Good Neighbour Scheme, and want you to understand and feel confident about how we protect and handle your personal data. If you would like to find out more you can read our [Privacy Policy](http://www.mcgns.org.uk/privacy), or contact our Data Controller by email: dpo@mcgns.org.uk.
